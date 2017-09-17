@@ -1,2 +1,0 @@
-# StupidTitan.github.io
-stuff
